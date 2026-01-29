@@ -81,7 +81,7 @@ https://images.pexels.com/photos/7341751/pexels-photo-7341751.jpeg
 
 https://images.pexels.com/photos/2733918/pexels-photo-2733918.jpeg
 
-torosu búfalos↓
+toros y búfalos↓
 https://images.pexels.com/photos/5947762/pexels-photo-5947762.jpeg
 
 https://images.pexels.com/photos/26706139/pexels-photo-26706139.jpeg
